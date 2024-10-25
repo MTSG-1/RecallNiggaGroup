@@ -1,7 +1,7 @@
 # RecallNiggaGroup
 
 Member
-1. GameMatus
-2. BallWeerayut
+1. Game Matus
+2. Ball Weerayut
 
 The Ijon Group
